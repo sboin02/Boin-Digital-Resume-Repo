@@ -1,0 +1,1 @@
+Hard working senior Electrical Engineering student seeking full-time employment. Offering diverse work experience, an eagerness and ability to learn, and excellent professional communication and customer service skills. Experience working in industry and being responsible for high-dollar projects and materials.
